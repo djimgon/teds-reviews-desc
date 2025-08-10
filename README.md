@@ -1,6 +1,8 @@
 # TedsWoodworking Plans Review 2025 – Real User Reviews of 16,000 Projects
 
-![Woodworking Tools](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f2/Woodworking_hand_tools.jpg/640px-Woodworking_hand_tools.jpg)
+<p align="center">
+  <img src="c2354f32-e77e-4b10-b78b-af04d184d92b.avif" alt="TedsWoodworking Plans Review 2025 – Real User Reviews" />
+</p>
 
 Welcome to **Teds Reviews** – your ultimate resource for honest and detailed reviews of the famous **TedsWoodworking** plans.  
 If you’ve ever wondered whether the **16,000 woodworking projects** included in this package are worth your time and money, you’re in the right place.
